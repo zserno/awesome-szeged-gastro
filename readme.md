@@ -24,7 +24,7 @@
 
 - [Cirmi](https://www.facebook.com/cirmigasztrokocsma/) - Kedvencem egy cheddaros Grabovszki burger, dupla baconnel, valami jó csapolt sörrel pl. Double Kitty dupla IPA, amit maguk főzetnek.
 - [Kapca](https://www.facebook.com/kapca.cafe/) - Másik nagy kedvenc, 5 éve működő családi sikersztori, főleg a kacsazsírban sült krumplijuk, valamint a Vegatron burgerük miatt imádom (utóbbi egy húsmentes burger, ahol egy hatalmas olvasztott sajt pogácsára cserélik a húst a vegák számára) egyébként a kávéjuk is jó, a debreceni black sheep pörkölőtől jön.
-- [Tiszavirág](https://www.facebook.com/szegedtiszavirag) - **A** fine dining hely Szegeden, nemrég a VW Dining Guide is díjazta a séfet, az „Év Innovatív Konyhája Díjjal”. Vasárnap ugyan nincs teljes konyha, ezért csak burgerük van, de az is kiváló.
+- [Tiszavirág](https://www.facebook.com/szegedtiszavirag) - **A** fine dining hely Szegeden, nemrég a VW Dining Guide is díjazta a séfet, az „Év Innovatív Konyhája Díjjal”. Vasárnap ugyan nincs teljes konyha, ezért csak burgerük van, de az is kiváló. Vasárnap reggel kár lenne kihagyni az eggs benedictjüket és a házi krémesüket.
 - [Vegazzo 2](https://www.facebook.com/Vegazzo2) - 100% vegán étterem, reggelivel, ebédmenüvel es remek „BBQ bacon” burgerrel, sajnos vasárnap zárva.
 
 

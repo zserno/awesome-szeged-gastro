@@ -5,10 +5,10 @@
 
 ## Tartalom
 
-- [Kávé](#kave)
+- [Kávé](#kávé)
 - [Burger](#burger)
-- [Pékség](#pekseg)
-- [Sütemény](#sutemeny)
+- [Pékség](#pékség)
+- [Sütemény](#sütemény)
 
 
 ## Kávé

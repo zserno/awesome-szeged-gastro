@@ -30,7 +30,7 @@
 
 ## Pékség
 
-- [Rudi & Fickó](https://www.facebook.com/rudiesficko/) - A Cirmis banda új helye, csak a kovászban hisznek, pizzában és forrócsokiban a legerősebbek, de kávéban is jók.
+- [Rudi & Fickó](https://www.facebook.com/rudiesficko/) - A Cirmis banda új helye, csak a kovászban hisznek (akit ők Gyulának neveznek és nemrég volt a szülinapja), pizzában és forrócsokiban a legerősebbek, de kávéban is jók.
 
 
 ## Sütemény

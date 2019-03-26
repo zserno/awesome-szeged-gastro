@@ -17,7 +17,7 @@
 - [Kék elefánt](https://www.facebook.com/kekelefantkavezo/) - Szinte mindig Casino Mokka, és van cascara is.
 - [Hét kávézó](https://www.facebook.com/hetkavezo/) - White Label de nemrég kezdtek saját pörkölésbe.
 - [A2](https://www.facebook.com/a2gastrocaffe/) - Változó pörkölők de nemcsak kávé van, hanem konyha is, főleg brunchban erős.
-- [Szia!](https://www.facebook.com/sziacoffee/) - Guruló, popup kávézó, tavaly kóstoltam ott a kávét: iható, de semmi különös, viszont nagyon hangulatos szép időben. Pont a Kapca burgerező melletti Mátyás téren található.
+- [Szia!](https://www.facebook.com/sziacoffee/) - Guruló, popup kávézó, egy nagyon hangulatos helyen, pont a Kapca burgerező melletti Mátyás téren található; tavaly kóstoltam ott a kávét: iható, de semmi különös.
 
 
 ## Burger

@@ -15,7 +15,7 @@
 
 - [Antique](https://www.facebook.com/AntiqueCafe) - Legtöbbször Awaken vagy Bean On.
 - [Kék elefánt](https://www.facebook.com/kekelefantkavezo/) - Szinte mindig Casino Mokka, és van cascara is.
-- [Hét kávéző](https://www.facebook.com/hetkavezo/) - White Label de nemrég kezdtek saját pörkölésbe.
+- [Hét kávézó](https://www.facebook.com/hetkavezo/) - White Label de nemrég kezdtek saját pörkölésbe.
 - [A2](https://www.facebook.com/a2gastrocaffe/) - Változó pörkölők de nemcsak kávé van, hanem konyha is, főleg brunchban erős.
 - [Szia!](https://www.facebook.com/sziacoffee/) - Guruló, popup kávézó, tavaly kóstoltam ott a kávét: iható, de semmi különös, viszont nagyon hangulatos szép időben. Pont a Kapca burgerező melletti Mátyás téren található.
 
@@ -30,12 +30,12 @@
 
 ## Pékség
 
-- [Rudi & Fickó](https://www.facebook.com/rudiesficko/) - A Cirmis banda új helye, csak a kovászban hisznek, pizzában és forrócsokiban a legerősebbek.
+- [Rudi & Fickó](https://www.facebook.com/rudiesficko/) - A Cirmis banda új helye, csak a kovászban hisznek, pizzában és forrócsokiban a legerősebbek, de kávéban is jók.
 
 
 ## Sütemény
 
-- [Torta művek](https://www.facebook.com/tortamuvek/) - A francia vonalat és a természetes alapanyagokat hirdetik, csak tőlük veszek szülinapi tortát, ugyan picit kintebb van a központtól, de nagyon megéri: kb. 20 perc séta a hídon és a ligeten át, vagy egy busz a Széchenyi-térről (protip: minden szegedi járművön lehet bankkártyával jegyet venni, automatából).
+- [Torta művek](https://www.facebook.com/tortamuvek/) - A francia vonalat és a természetes alapanyagokat hirdetik, csak tőlük veszek szülinapi tortát, jó a világos kávéjuk, ugyan picit kintebb van a központtól, de nagyon megéri: kb. 20 perc séta a hídon és a ligeten át, vagy egy busz a Széchenyi-térről (protip: minden szegedi járművön lehet bankkártyával jegyet venni, automatából).
 
 
 ## Kontributálj!

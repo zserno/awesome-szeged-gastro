@@ -1,3 +1,4 @@
+<meta property="og:image" content="https://github.com/zserno/awesome-szeged-gastro/raw/master/media/logo.png" />
 <div align="center">
 	<div>
 		<img width="500" src="media/logo.png" alt="Awesome Szeged Gastro">

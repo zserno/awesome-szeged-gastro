@@ -1,3 +1,9 @@
+<div align="center">
+	<div>
+		<img width="500" src="media/logo.png" alt="Awesome Szeged Gastro">
+	</div>	
+</div>
+
 # Awesome Szeged Gastro [![Awesome](https://awesome.re/badge.svg)](https://awesome.re)
 
 > Ez egy szépen ápolt lista Szeged legjobb helyeiről.
